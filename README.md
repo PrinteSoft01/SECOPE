@@ -12,3 +12,5 @@ Livro sobre a história do Seminário Como no Pentecostes
 *Uma Junção sobrenatural* - Fogo e Glória e Som da Chuva
 
 *O primeiro...* Fracasso em quantidade, mas era só o começo!
+
+*Começou a ampliação...* Outra congregação se junta ao SECOPE!
